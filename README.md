@@ -1,1 +1,0 @@
-# lgahart.github.io
